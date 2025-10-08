@@ -1,9 +1,10 @@
-<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/d1329655-6232-43b1-bf96-40985a9f2b0c" />
+<img width="640" height="360" alt="image" src="https://github.com/user-attachments/assets/2c3373b7-aff2-4e5f-8895-98b967773c93" />
+
 
 
 # Comb
-«Alright, fine! I didn't even wanna be on your show anyway!» 
-«Do what you were born to do, use your legs and jump!» 
-«Oh, come on! That was like the best curveball ever!» 
-«Eh, it's okay I guess.»
-- Nickel From Inanimate Insanity.
+"Water! DR. FIZZ! Water! DR. FIZZ!"
+"Let's make an earthquake! Ehahahaha!!!~"
+"SHUT UP!!"
+"What?! No!!! OoOoOoh!!~ I am so glad!"
+- Yin-Yang From Inanimate Insanity.
